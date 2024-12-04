@@ -8,8 +8,8 @@ Kue ini sangat cocok untuk disajikan saat acara formal maupun santai. Dengan ber
 Kontak:
 082214297187
 
-https://kuekeringcimahipremium.blogspot.com/2024/12/082214297187-kue-kering-enak-cimahi.html
+https://kuekeringcimahipremium.blogspot.com/2024/12/082214297187-pesan-kue-kering-cimahi.html
 
-https://kuekeringcimahipremium.blogspot.com/2024/12/082214297187-kue-kering-murah-cimahi.html
+https://kuekeringcimahipremium.blogspot.com/
 
 https://500px.com/photo/1104941901/082214297187-kue-kering-lebaran-cimahi-kue-kering-cimahi-tahan-lama-by-kurnia-sandi
